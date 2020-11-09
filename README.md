@@ -1,2 +1,0 @@
-# emrekabak
-txt
